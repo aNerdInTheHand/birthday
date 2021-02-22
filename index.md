@@ -218,3 +218,64 @@ To nursery it was time you were introduced
 ---
 
 ### Chapter 4 - Family Christmas
+
+The cold winds had started to blow from the North
+
+But still we would do coastal walks back and forth
+
+The days getting shorter but full of good cheer
+
+Mammy and daddy love this time of year
+
+But as you were still a most difficult child
+
+Boisterous and shouty and really quite wild
+
+We took a decision that broke daddy's heart
+
+You were going to nursery for an early start
+
+To soften the blow for our poor little man
+
+On a Monday you'd go to your opa and gran
+
+But slowly we found that we'd made the right call
+
+And Thomas at nursery was having a ball
+
+We'd heard of strange nursery powers at play
+
+They seem to cause babies to sleep - in the day
+
+And so it turned out, your naps then improved
+
+Sadly at night you were largely unmoved
+
+
+And would you believe it, another new issue
+
+You sneezed and were wheezy and needed a tissue
+
+It seemed every week you'd picked up a new bug
+
+"It's good for your system", we said with a shrug
+
+But Santa was coming and you really weren't well
+
+The night before Christmas was something like hell
+
+You stayed in our bed and cried all the night
+
+You must have given Santa an almighty fright
+
+But 4AM came and you woke with a start
+
+Santa had been and he took you to heart
+
+Everything that a boy needs to go far
+
+A ballpit, a car and a pair of guitars
+
+We took you to grandma's to open a box
+
+And inside you found a new horse that rocks
