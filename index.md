@@ -177,6 +177,44 @@ And wouldn't you know, you slept for the whole time
 
 No matter, the torrential rain was maritime
 
+
+
 So back we went home but the sleep strike went on
 
 The nights had drawn in and by god they were long
+
+But it wasn't your fault, you had energy to burn
+
+And your brain was exploding with new things to learn
+
+We looked on one day, faces proud and amazed
+
+As you went from a reclined position to raised
+
+"Our boy can sit!" we shouted with glee
+
+Then you turned on your heels and started to flee
+
+"He's crawling, he's crawling!" we couldn't believe
+
+"He's going to be walking by Christmas Eve!"
+
+One day we walked in to your nursery to find
+
+You stood with a mischievous glint in your eye
+
+All of these changes in such a short time
+
+You grew up so fast it was almost a crime
+
+And no you weren't sleeping but you were adored
+
+Even if you became easily bored
+
+Winter was coming and now we deduced
+
+To nursery it was time you were introduced
+
+---
+
+### Chapter 4 - Family Christmas
