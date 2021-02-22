@@ -152,3 +152,31 @@ Once more you tried to drive us round the bend...
 A first family holiday, that sounds all right!
 
 You were so excited you slept through the night
+
+We drove down to Cropton, you slept all the way
+
+We went for a stroll, had a wonderful day
+
+But then came the night time and it was so hot
+
+And you had the most awful and bare travel cot
+
+"That's it!" you declared, "I've had quite enough"
+
+"No more will I sleep, things are going to get rough"
+
+And boy you weren't kidding, you stayed up all week
+
+I couldn't imagine a time be more bleak
+
+But still we pushed on through your principled stand
+
+And went for a rainy day at Flamingo Land
+
+And wouldn't you know, you slept for the whole time
+
+No matter, the torrential rain was maritime
+
+So back we went home but the sleep strike went on
+
+The nights had drawn in and by god they were long
