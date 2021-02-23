@@ -279,3 +279,48 @@ A ballpit, a car and a pair of guitars
 We took you to grandma's to open a box
 
 And inside you found a new horse that rocks
+
+Despite the lockdown Christmas, we had a lot of fun
+
+Days like this are truly why we wanted our own son
+
+Then we went to see you auntie, uncle, cousins too
+
+But you slept most all the time, Christmas is tiring, phew!
+
+You slept that night, eventually, thinking 'Christmas is ace'
+
+And the next day had a visit to grandpa Richard and grandma Grace
+
+You had now had your first Christmas season
+
+But more lockdowns beckoned, festive visits were the reason
+
+As we moved into a new isolation
+
+Opa decided you were a crustacean
+
+You scuttled around and with nails you did stab
+
+Opa called you detective inspector crab
+
+But despite all the hardships things could have been worse
+
+And now we come on to our final verse
+
+---
+
+### Chapter 5 - Walking, Talking Boy
+
+"Dada! Mama! Cat! Vroom vroom!"
+
+You burbled while pushing your cars round the room
+
+And not content with learning to talk
+
+You got to your feet and started to walk
+
+You'd go for a sprint and to daddy you'd dive
+
+Or stand on the spot and boogie and jive
+
