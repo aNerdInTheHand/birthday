@@ -324,3 +324,6 @@ You'd go for a sprint and to daddy you'd dive
 
 Or stand on the spot and boogie and jive
 
+Nursery was honing your social skills no end
+
+They told us you even had a girlfriend!
