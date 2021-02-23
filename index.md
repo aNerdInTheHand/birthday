@@ -327,3 +327,25 @@ Or stand on the spot and boogie and jive
 Nursery was honing your social skills no end
 
 They told us you even had a girlfriend!
+
+You're lovely and funny and handsome and smart
+
+You really could melt any old grinch's heart
+
+You just want to be with your mammy and me
+
+Especially in the morning when the clock strikes three
+
+And now we can start to look forward a bit
+
+As the world slowly tries to get itself fit
+
+We'll all learn together the things that you like
+
+Like puppies and football and riding a bike
+
+Having you is the best thing I've ever done
+
+You'll never know how proud I am to call you... son.
+
+Love dad.
