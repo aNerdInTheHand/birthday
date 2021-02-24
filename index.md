@@ -55,7 +55,7 @@ But don't let me tell you that nothing was good
 
 We were getting to know our own flesh and blood
 
-I can't say I was stunned when you grew like a week
+I can't say I was stunned when you grew like a weed
 
 When you woke every 45 minutes to feed
 
