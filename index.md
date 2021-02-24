@@ -173,7 +173,7 @@ But still we pushed on through your principled stand
 
 And went for a rainy day at Flamingo Land
 
-And wouldn't you know, you slept for the whole time
+And wouldn't you know, you slept the whole time
 
 No matter, the torrential rain was maritime
 
