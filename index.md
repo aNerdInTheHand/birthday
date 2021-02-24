@@ -344,6 +344,18 @@ We'll all learn together the things that you like
 
 Like puppies and football and riding a bike
 
+Early starts are still the norm
+
+But now the weather is getting warm
+
+There's hope and positivity in the air
+
+You might have to look but I promise it's there
+
+You bring out the best in your mam and dad
+
+And even though you drive us mad
+
 Having you is the best thing I've ever done
 
 You'll never know how proud I am to call you... son.
