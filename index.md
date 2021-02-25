@@ -86,7 +86,7 @@ Nothing as easy as counting some sheep
 
 Out in the pram every hour of the night
 
-From sunsent, to darkness, to sunrise, to light
+From sunset, to darkness, to sunrise, to light
 
 Some of the hardest times daddy has known
 
