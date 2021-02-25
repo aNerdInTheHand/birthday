@@ -284,7 +284,7 @@ Despite the lockdown Christmas, we had a lot of fun
 
 Days like this are truly why we wanted our own son
 
-Then we went to see you auntie, uncle, cousins too
+Then we went to see your auntie, uncle, cousins too
 
 But you slept most all the time, Christmas is tiring, phew!
 
