@@ -2,6 +2,10 @@
 
 ### Chapter One - Beginnings
 
+<details>
+  
+  <summary>In which we document the beginning of a magical journey</summary>
+
 Thomas you've been with us now for a year
 
 And my how you've grown, from a dot to a bear
@@ -361,3 +365,5 @@ Having you is the best thing I've ever done
 You'll never know how proud I am to call you... son.
 
 Love dad.
+
+</details>
