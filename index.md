@@ -1,10 +1,12 @@
-## 🎂 Happy Birthday Thomas 🎉
+# 🎂 Happy Birthday Thomas 🎉
 
-### Chapter One - Beginnings
+# One
 
 <details>
   
   <summary>In which we document the beginning of a magical journey</summary>
+
+### Chapter One - Beginnings
 
 Thomas you've been with us now for a year
 
@@ -366,4 +368,20 @@ You'll never know how proud I am to call you... son.
 
 Love dad.
 
+</details>
+
+# Two
+
+<details>
+  
+  <summary>In which we marvel at the emergence of a tiny genius</summary>
+
+### Chapter One - More Of The Same
+
+And just like that our baby was one
+
+If I said it got easier I would have lied
+
+So strap yourself in for the next part of our ride.
+  
 </details>
