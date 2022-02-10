@@ -379,9 +379,39 @@ Love dad.
 ### Chapter One - More Of The Same
 
 And just like that our baby was one
+  
+It felt like he had just begun
 
 If I said it got easier I would have lied
 
-So strap yourself in for the next part of our ride.
+So strap yourself in for the next part of our ride
+
+Because as it happens, nothing had changed
+
+And mammy and daddy were feeling deranged
+
+There was no denying this year took its toll
+
+We needed to get ourselves back on a roll
+
+What could we do for our wee little boy
+
+To settle him down and bring him some joy
+
+"Bairns all love doggies!" said daddy with glee
+
+And before long we had brought home... Ripley!
+
+And while mammy loved him and daddy went walking
+
+Thomas was far more concerned with his talking
+
+He put his own stepping on hold for a bit
+
+And focussed on honing his rapier wit
+
+Because despite all of the pain we'd been through
+
+You'd realised your laughter stopped us feeling blue
   
 </details>
