@@ -413,5 +413,57 @@ And focussed on honing his rapier wit
 Because despite all of the pain we'd been through
 
 You'd realised your laughter stopped us feeling blue
-  
+
+Then all of a sudden the talking had ceased
+
+You decided you'd rather focus on your feet
+
+You climbed and you clambered, you stumbled and fell
+
+But that didn't stop you and soon you walked well
+
+Your confidence led to an obvious call
+
+It was high time that daddy bought you a football
+
+### Chapter Two - Hell Breaks Loose
+
+### Chapter Three - Sleep At Last
+
+But by now you know that the struggle was real
+
+That five letter word - TIRED was all we could feel
+
+So Helen and Kev offered a tip
+
+"Chuck him in bed and get out of there quick!"
+
+So we did, and he screamed and he thrashed like we thought
+
+Never before had he been so distraught
+
+But plough on we did as we hadn't a choice
+
+If nothing else you might have just lost your voice
+
+But as we rolled on to the third or fourth night
+
+You gave a small murmur then fell asleep tight
+
+And something else happened, we thought you were broken
+
+Morning was here and we hadn't been woken
+
+What on earth was this feeling we had in our head
+
+Not constantly pining and yearning for bed
+
+And our cheeky young boy, this irascible chap
+
+Was sleeping all night plus a two hour nap
+
+We took him on holiday with grandma and opa
+
+Did the disruption cause sleep loss? Not a single iota!
+
 </details>
