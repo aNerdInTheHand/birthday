@@ -426,11 +426,63 @@ Your confidence led to an obvious call
 
 It was high time that daddy bought you a football
 
+And games in the garden were all sorts of fun
+
+Ripley and Thomas would make daddy run
+
+But obviously there was one thing we'd forgot
+
+Doggies and kitties will fight - quite a lot
+
 ### Chapter Two - Hell Breaks Loose
+
+As Spring turned to Summer times were extra hard
+
+Roxy could no longer go in the yard
+
+Ripley would chase and bark all of the while
+
+And mammy and daddy could not reconcile
+
+The time that we spent on schooling the dog
+
+Whilst having to neglect our precious young sprog
+
+But what could we do except soldier on?
+
+And hope one day we could sleep just past the dawn
+
+But as we accepted that you'd never sleep
+
+We made a decision that didn't come cheap
+
+We found a new home for our lush Ripley dog
+
+But we remain in constant dialogue
+
+Maybe one year we'll be ready again
+
+But we certainly won't quickly forget this pain
+
+But slowly we emerged as a unit once more
+
+And you could see fully how you were adored
+
+Maybe we spoilt you but what can I say
+
+You brought the sunshine into every day
+
+If only, if only, you fancied a kip
+
+Daddy would dance and mammy would skip
+
+But this was still seemingly one step too far
+
+We saw the sun even less than the stars
 
 ### Chapter Three - Sleep At Last
 
-But by now you know that the struggle was real
+So by now you know that the struggle was real
 
 That five letter word - TIRED was all we could feel
 
@@ -466,4 +518,103 @@ We took him on holiday with grandma and opa
 
 Did the disruption cause sleep loss? Not a single iota!
 
+And all of a sudden everything was good
+
+We no longer felt we were running through mud
+
+But as we now know we just can't have nice things
+
+I think you can guess what the next chapter brings
+
+### Chapter Four - Ha Ha Just Kidding!
+
+Mammy and daddy shared an anxious glance
+
+Could he be teething? Poorly, perchance?
+
+Surely there must be a reasonable answer
+
+To why Thomas is impersonating a dancer
+
+And screaming like Meatloaf in the dead of night
+
+This isn't like him, he'll sleep again... right?!
+
+Dear reader, by now you know how this all ends
+
+With mammy and daddy driven round the bend
+
+But so it transpired, for many more weeks
+
+Months in fact with a stunning lack of sleep
+
+No longer just waking in need of a hug
+
+Now it was hours but you were too tired to lug
+
+Around in our arms, so downstairs we went
+
+Until, after two hours or so, you were spent
+
+And you'd finally sleep again at five AM
+
+Daddy was lucky to get five minutes' REM
+
+And as for deep sleep? You're having a laugh!
+
+Seeing you sleep was worth a photograph
+
+So how did we get through this difficult time?
+
+That went to ridiculous from the sublime
+
+It's easy, at least to explain looking back
+
+Daddy was already an insomniac
+
+And also we loved you and seeing you grow
+
+Was worth anything that we had to forego
+
+### Chapter Five - Character
+
+We took you on holiday to stay on a boat
+
+Although this one was no longer afloat
+
+Atop a big hill surrounded by sheep
+
+We took you to Beadnell to play on the beach
+
+And even despite the torrential rain
+
+(And the tent-destroying hurricane)
+
+You wanted to play outside with the ball
+
+And invited the baa baas and animals all
+
+Because this was what kind of boy you'd become
+
+Greater than all of the parts of your sum
+
+You may not have slept but of all of your quirks
+
+That was the only one still needing work
+
+For never a happier boy did I see
+
+Or a kinder one whose daddy I'd rather be
+
+And everyone said so, it wasn't just me
+
+You were the favourite at your nursery
+
+We knew by now that you loved to make us grin
+
+By smiling and joking and putting cars in the bin
+
+But it seemed that you'd got mammy's brains as well
+
+And as Christmas rolled round ...
 </details>
