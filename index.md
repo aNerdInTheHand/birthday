@@ -2,8 +2,6 @@
 
 # One
 
-<details>
-  
   <summary>In which we document the beginning of a magical journey</summary>
 
 ### Chapter One - Beginnings
@@ -368,12 +366,8 @@ You'll never know how proud I am to call you... son.
 
 Love dad.
 
-</details>
-
 # Two
 
-<details>
-  
   <summary>In which we marvel at the emergence of a tiny genius</summary>
 
 ### Chapter One - More Of The Same
@@ -689,4 +683,3 @@ So thank you for coming and being our son
 Mammy and daddy love you
 
 A ton
-</details>
