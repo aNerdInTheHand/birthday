@@ -616,5 +616,77 @@ By smiling and joking and putting cars in the bin
 
 But it seemed that you'd got mammy's brains as well
 
-And as Christmas rolled round ...
+And as Christmas rolled round we said farewell
+
+To our little baby who'd grown into a boy
+
+And brought us a limitless supply of joy
+
+And yes there were tough times along the way
+
+But watching him learn how to walk, talk and play
+
+Meant he was on Santa's nice list
+
+And this year Warvastelly Christmas wouldn't be missed
+
+Christmas Morning with Mammy and Daddy (and toys)
+
+Then over to grandma and opa's for noise
+
+With Molly and Ham and Van and Bob
+
+Henen and Kev, indeed the whole mob
+
+A sign of things still yet to come
+
+As we rise out of the glum
+
+Of another year of the pandemic
+
+But the past is all academic
+
+Because as the New Year rolled around
+
+We still had a familiar sound
+
+Up and crying every night
+
+But maybe 2022 will be the year we get it right
+
+### Chapter Six - Big Lad
+
+And as your birthday rolled around
+
+At nursery you were quite renowned
+
+For your winning smile and golden curls
+
+And your successes with the girls
+
+And all we heard at bedtime each night
+
+Was how you and Isaac were so tight
+
+The best of friends, though you had many
+
+Max, Rowan, Maria, Toby - have I missed any??
+
+So mammy and daddy have our routine
+
+Involving four hours of sleep between
+
+Watching our little boy grow healthy and strong
+
+In the household we built just for you to belong
+
+And it could be a million times more tough
+
+Just one laugh from you and it would still be enough
+
+So thank you for coming and being our son
+
+Mammy and daddy love you
+
+A ton
 </details>
