@@ -689,3 +689,105 @@ A ton
   <summary>In which Thomas bypasses toddlerhood and becomes a boy</summary>
 
 ### Chapter One - To follow...
+
+### Chapter X - Sad Boy
+
+We'd already seen enough colic to last
+
+Several lifetimes but damn, drat and blast
+
+It seemed once again we could do nothing right
+
+You cried through the day and you screamed through the night
+
+And when, once a smile half appeared on your face
+
+We asked "are you happy?" and gave you an embrace
+
+Alas, our little toonager said
+
+"I'm not happy, I'm said boy" instead
+
+We threw up our hands and exclaimed in despair
+
+"What are we doing so wrong little bear?!"
+
+But now and again we would notice with glee
+
+Your happiness shining through your stormy seas
+
+And so once again we returned to that phrase
+
+That serves us so well - "It's only a phase"
+
+### Chapter X - 2 going on 43
+
+And all of a sudden the questions you asked
+
+Made us do double takes, step back and gasp
+
+For what kind of two year old knows how to say
+
+"Ooh, that wind's picking up out there today"
+
+And "Grayson, are you ok to talk?"
+
+"Daddy, let's take my toys for a walk"
+
+And "Roxy dog, how many times must I tell you?"
+
+"Hi baby Seb, where did they buy you?"
+
+How could we wonder why you can't sleep
+
+When the thoughts going round in your head were so deep
+
+### Chapter X - The Wizard of Merlin
+
+Finally mammy and daddy worked out
+
+The cause of your anger and sadness and doubt
+
+BFF Isaac had moved up a room
+
+At nursery and this left you wallowing in gloom
+
+But you didn't want to leave Camelot
+
+And go into Merlin away from the tots
+
+You were so nervous it gave you nightmares
+
+"THERE'S POO ON MY PILLOW, THERE'S POO EVERYWHERE!"
+
+"THERE'S POO ON MY HANDS AND MY BED AND MY FACE"
+
+You screamed with alarm as dad tried to trace
+
+The source of the poo that no one else could see
+
+Hallucinations and fever, it just had to be
+
+Enough was enough, dad had decided
+
+And so into Merlin we marched undivided
+
+And all of a sudden, Isaac appeared
+
+And Merlin was no longer a place to be feared
+
+With nary a glance back at his proud dad
+
+Thomas ran off, no longer sad
+
+And so brings an end to this difficult year
+
+But one which has seen a new Thomas appear
+
+No longer a baby, a toddler, no
+
+Our boy is so big, where does the time go?
+
+And all of the challenging times that we face
+
+Are worth it times ten, 'cause Thomas - yer ace.
