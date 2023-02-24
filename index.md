@@ -794,9 +794,127 @@ But nevertheless, his interests ballooned
 
 As did the toy stash in the front room
 
-### Chapter X - Paw Patrol Intervention
+### Chapter 4 - Family Man
 
-### Chapter X - Sad Boy
+As Thomas began to decide who he loved
+
+One category was always above
+
+That was his family, Molly and Sam
+
+Grandma and Opa, Uncle Rob and Auntie Val
+
+Helen and Kev are never forgotten
+
+It got to the stage when bedtimes were rotten
+
+That mammy said what about a family song?
+
+And before we knew it he was singing along
+
+To all of his family at bed every night
+
+He thinks of you all to help him sleep tight
+
+### Chapter 5 - Boys Of Summer
+
+And summer rolled round, those halcyon days
+
+Where every little boy in the land plays
+
+With his mates in the garden and down at the sea
+
+And Rowan and Max came along abd agreed
+
+That nothing was better than getting all wet
+
+We bought for the garden his favourite toy yet
+
+A paddling pool for the days when the sun
+
+Was scorching above and there was naught to be done
+
+And soon we discovered his genius was true
+
+As he sat on the potty and did a big POO
+
+Mammy and daddy were ever so thrilled
+
+Though less so whenver the contents were spilled
+
+And yet it confirmed what we tried not to suspect
+
+Our boy was growing, we'd have to accept
+
+That no longer a little baby was he
+
+He even did big boy wees against the trees!
+
+### Chapter 6 - Music Man
+
+And growing up with a rock star for a daddy
+
+And a classically trained blues singing mammy
+
+There was really no choice that music would find him
+
+What would he choose? Gospel, blues, hymns?
+
+As it happens his taste came mainly from his mam
+
+Rocking out to the Cadillac Three in his pram
+
+"This song is the favourite of Lightning McQueen!"
+
+He'd declare as he belted to people unseen
+
+In the shops and the streets of our quaint little city
+
+Imploring them please, "DON'T FORGET THE WHISKEY!"
+
+He sang about Florida, that he was thirsty
+
+And how he wanted to get down and dirty
+
+And if we passed a cute little miss
+
+He'd instruct to her to "LEAN IN AND GIMME A KISS"
+
+And were we embarrassed? Perish the thought
+
+A musical child is the best gift we could be brought
+
+### Chapter 7 - Paw Patrol Intervention
+
+And Christmas came round, as it's wont to do
+
+We thought we'd escaped the terrible twos
+
+Until one fateful day with a poorly boy
+
+He watched TV all day and played with no toys
+
+His eyes became squares like in a cartoon
+
+He watched under the sun he watched under the moon
+
+We tried to ask him to please turn it off
+
+He'd scream and cry, turn red and cough
+
+One day we said simply "enough is enough"
+
+"TWO EPISODES and then the TV is OFF"
+
+And would you believe it? It worked for a while
+
+Though he might ask for more with a cute little smile
+
+This parenting lark is not quite so bad
+
+We thought until our little boy turned... sad :(
+
+### Chapter 8 - Sad Boy
 
 We'd already seen enough colic to last
 
@@ -826,9 +944,9 @@ And so once again we returned to that phrase
 
 That serves us so well - "It's only a phase"
 
-### Chapter X - 2 going on 43
+### Chapter 9 - Two Going On 43
 
-And all of a sudden the questions you asked
+Then all of a sudden the questions you asked
 
 Made us do double takes, step back and gasp
 
@@ -848,7 +966,7 @@ How could we wonder why you can't sleep
 
 When the thoughts going round in your head were so deep
 
-### Chapter X - The Wizard of Merlin
+### Chapter 10 - The Wizard Of Merlin
 
 Finally mammy and daddy worked out
 
