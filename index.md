@@ -683,3 +683,337 @@ So thank you for coming and being our son
 Mammy and daddy love you
 
 A ton
+
+# Three
+
+  <summary>In which Thomas bypasses toddlerhood and becomes a boy</summary>
+
+### Chapter One - A New Dawn
+
+As you embarked on your third year with us
+
+Strange things were happening, we had to discuss
+
+How the world once more was opening up
+
+With new opportunities for our young pup
+
+For no longer were faces all covered by masks
+
+And we no longer worried about routine tasks
+
+Like going to shops or the park or our friends'
+
+Wherever we took you our pride knew no ends
+
+For challenging though our home life had been
+
+When out and about you were a sight to be seen
+
+And as the pubs and the restaurants opened once more
+
+Some of our sanity began to restore
+
+And you discovered a love of scampi
+
+Divers gold from the beautiful briny North Sea
+
+And we made some more time to see people you love
+
+You and Elodie just seemed to fit like a glove
+
+And Matthew and Stacey were two of your faves
+
+But never forgetting your best uncle Dave
+
+And every compliment people did pay
+
+Made us feel happy and proud in every way
+
+### Chapter 2 - Big Boy Bed
+
+A magical point in every child's life
+
+A first step to having control of their life
+
+"It couldn't get worse", mammy and daddy said
+
+"Why not? We'll give him his first big boy bed"
+
+So off came the bars and down went the base
+
+And oh, the excitement on Thomas's face
+
+"My very own bed!" and in it he jumped
+
+But several hours later there came a great THUMP
+
+And lo, as we raced to his room through the door
+
+There was our boy, asleep on the floor
+
+### Chapter 3 - Tour De Tynemouth
+
+Finally daddy decided 'twas time
+
+To get on the bike when the weather was fine
+
+A bike seat arrived and Thomas got on
+
+And whoosh! just like that we were gone!
+
+"SLOW DOWN! NOT TOO FAST!" he cried as I rode
+
+At 3 miles per hour, down Shipley Road
+
+But slowly (so slowly) he learned to enjoy
+
+The love of a bike that lives in every boy
+
+And we'd cycle with mammy to the pirate pool
+
+Arriving in style, a picture of cool
+
+And did I mentioned our boy could now swim?
+
+(Although he still didn't like to jump in)
+
+So all of the things that little boys do
+
+Our little man was ticking off too
+
+Although football lessons fell by the wayside
+
+As all Thomas wanted was to run round the sides
+
+The same went for Tumble, we started to see
+
+Classes and structure? No, not for he
+
+But nevertheless, his interests ballooned
+
+As did the toy stash in the front room
+
+### Chapter 4 - Family Man
+
+As Thomas began to decide who he loved
+
+One category was always above
+
+That was his family, Molly and Sam
+
+Grandma and Opa, Uncle Rob and Auntie Val
+
+Helen and Kev are never forgotten
+
+It got to the stage when bedtimes were rotten
+
+That mammy said what about a family song?
+
+And before we knew it he was singing along
+
+To all of his family at bed every night
+
+He thinks of you all to help him sleep tight
+
+### Chapter 5 - Boys Of Summer
+
+And summer rolled round, those halcyon days
+
+Where every little boy in the land plays
+
+With his mates in the garden and down at the sea
+
+And Rowan and Max came along abd agreed
+
+That nothing was better than getting all wet
+
+We bought for the garden his favourite toy yet
+
+A paddling pool for the days when the sun
+
+Was scorching above and there was naught to be done
+
+And soon we discovered his genius was true
+
+As he sat on the potty and did a big POO
+
+Mammy and daddy were ever so thrilled
+
+Though less so whenver the contents were spilled
+
+And yet it confirmed what we tried not to suspect
+
+Our boy was growing, we'd have to accept
+
+That no longer a little baby was he
+
+He even did big boy wees against the trees!
+
+### Chapter 6 - Music Man
+
+And growing up with a rock star for a daddy
+
+And a classically trained blues singing mammy
+
+There was really no choice that music would find him
+
+What would he choose? Gospel, blues, hymns?
+
+As it happens his taste came mainly from his mam
+
+Rocking out to the Cadillac Three in his pram
+
+"This song is the favourite of Lightning McQueen!"
+
+He'd declare as he belted to people unseen
+
+In the shops and the streets of our quaint little city
+
+Imploring them please, "DON'T FORGET THE WHISKEY!"
+
+He sang about Florida, that he was thirsty
+
+And how he wanted to get down and dirty
+
+And if we passed a cute little miss
+
+He'd instruct to her to "LEAN IN AND GIMME A KISS"
+
+And were we embarrassed? Perish the thought
+
+A musical child is the best gift we could be brought
+
+### Chapter 7 - Paw Patrol Intervention
+
+And Christmas came round, as it's wont to do
+
+We thought we'd escaped the terrible twos
+
+Until one fateful day with a poorly boy
+
+He watched TV all day and played with no toys
+
+His eyes became squares like in a cartoon
+
+He watched under the sun he watched under the moon
+
+We tried to ask him to please turn it off
+
+He'd scream and cry, turn red and cough
+
+One day we said simply "enough is enough"
+
+"TWO EPISODES and then the TV is OFF"
+
+And would you believe it? It worked for a while
+
+Though he might ask for more with a cute little smile
+
+This parenting lark is not quite so bad
+
+We thought until our little boy turned... sad :(
+
+### Chapter 8 - Sad Boy
+
+We'd already seen enough colic to last
+
+Several lifetimes but damn, drat and blast
+
+It seemed once again we could do nothing right
+
+You cried through the day and you screamed through the night
+
+And when, once a smile half appeared on your face
+
+We asked "are you happy?" and gave you an embrace
+
+Alas, our little toonager said
+
+"I'm not happy, I'm said boy" instead
+
+We threw up our hands and exclaimed in despair
+
+"What are we doing so wrong little bear?!"
+
+But now and again we would notice with glee
+
+Your happiness shining through your stormy seas
+
+And so once again we returned to that phrase
+
+That serves us so well - "It's only a phase"
+
+### Chapter 9 - Two Going On 43
+
+Then all of a sudden the questions you asked
+
+Made us do double takes, step back and gasp
+
+For what kind of two year old knows how to say
+
+"Ooh, that wind's picking up out there today"
+
+And "Grayson, are you ok to talk?"
+
+"Daddy, let's take my toys for a walk"
+
+And "Roxy dog, how many times must I tell you?"
+
+"Hi baby Seb, where did they buy you?"
+
+How could we wonder why you can't sleep
+
+When the thoughts going round in your head were so deep
+
+### Chapter 10 - The Wizard Of Merlin
+
+Finally mammy and daddy worked out
+
+The cause of your anger and sadness and doubt
+
+BFF Isaac had moved up a room
+
+At nursery and this left you wallowing in gloom
+
+But you didn't want to leave Camelot
+
+And go into Merlin away from the tots
+
+You were so nervous it gave you nightmares
+
+"THERE'S POO ON MY PILLOW, THERE'S POO EVERYWHERE!"
+
+"THERE'S POO ON MY HANDS AND MY BED AND MY FACE"
+
+You screamed with alarm as dad tried to trace
+
+The source of the poo that no one else could see
+
+Hallucinations and fever, it just had to be
+
+Enough was enough, dad had decided
+
+And so into Merlin we marched undivided
+
+And all of a sudden, Isaac appeared
+
+And Merlin was no longer a place to be feared
+
+With nary a glance back at his proud dad
+
+Thomas ran off, no longer sad
+
+And so brings an end to this difficult year
+
+But one which has seen a new Thomas appear
+
+No longer a baby, a toddler, no
+
+Our boy is so big, where does the time go?
+
+And all of the challenging times that we face
+
+Are worth it times ten, 'cause Thomas...
+
+Yer ace.
