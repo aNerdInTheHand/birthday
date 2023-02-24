@@ -688,7 +688,113 @@ A ton
 
   <summary>In which Thomas bypasses toddlerhood and becomes a boy</summary>
 
-### Chapter One - To follow...
+### Chapter One - A New Dawn
+
+As you embarked on your third year with us
+
+Strange things were happening, we had to discuss
+
+How the world once more was opening up
+
+With new opportunities for our young pup
+
+For no longer were faces all covered by masks
+
+And we no longer worried about routine tasks
+
+Like going to shops or the park or our friends'
+
+Wherever we took you our pride knew no ends
+
+For challenging though our home life had been
+
+When out and about you were a sight to be seen
+
+And as the pubs and the restaurants opened once more
+
+Some of our sanity began to restore
+
+And you discovered a love of scampi
+
+Divers gold from the beautiful briny North Sea
+
+And we made some more time to see people you love
+
+You and Elodie just seemed to fit like a glove
+
+And Matthew and Stacey were two of your faves
+
+But never forgetting your best uncle Dave
+
+And every compliment people did pay
+
+Made us feel happy and proud in every way
+
+### Chapter 2 - Big Boy Bed
+
+A magical point in every child's life
+
+A first step to having control of their life
+
+"It couldn't get worse", mammy and daddy said
+
+"Why not? We'll give him his first big boy bed"
+
+So off came the bars and down went the base
+
+And oh, the excitement on Thomas's face
+
+"My very own bed!" and in it he jumped
+
+But several hours later there came a great THUMP
+
+And lo, as we raced to his room through the door
+
+There was our boy, asleep on the floor
+
+### Chapter 3 - Tour De Tynemouth
+
+Finally daddy decided 'twas time
+
+To get on the bike when the weather was fine
+
+A bike seat arrived and Thomas got on
+
+And whoosh! just like that we were gone!
+
+"SLOW DOWN! NOT TOO FAST!" he cried as I rode
+
+At 3 miles per hour, down Shipley Road
+
+But slowly (so slowly) he learned to enjoy
+
+The love of a bike that lives in every boy
+
+And we'd cycle with mammy to the pirate pool
+
+Arriving in style, a picture of cool
+
+And did I mentioned our boy could now swim?
+
+(Although he still didn't like to jump in)
+
+So all of the things that little boys do
+
+Our little man was ticking off too
+
+Although football lessons fell by the wayside
+
+As all Thomas wanted was to run round the sides
+
+The same went for Tumble, we started to see
+
+Classes and structure? No, not for he
+
+But nevertheless, his interests ballooned
+
+As did the toy stash in the front room
+
+### Chapter X - Paw Patrol Intervention
 
 ### Chapter X - Sad Boy
 
@@ -790,4 +896,6 @@ Our boy is so big, where does the time go?
 
 And all of the challenging times that we face
 
-Are worth it times ten, 'cause Thomas - yer ace.
+Are worth it times ten, 'cause Thomas...
+
+Yer ace.
